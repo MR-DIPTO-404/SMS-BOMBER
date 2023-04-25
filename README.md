@@ -1,4 +1,4 @@
-* SMS BOMBER APP VERSION 1.1
+* SMS BOMBER APP VERSION 1.2
 * CLICK HERE 👇👇
 
 🔰 New Version 1.2 <a href="https://github.com/MR-DIPTO-404/SMS-BOMBER/blob/main/SMS_BOMBER.apk?raw=true">DOWNLOAD</a>
