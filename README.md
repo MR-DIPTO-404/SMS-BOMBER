@@ -14,4 +14,4 @@
 
 * IF INSTALL/USING PROBLEM DOWNLOAD THIS:👇
 
-🍼  New Version 1.7 <a href="https://github.com/MR-DIPTO-404/SMS-BOMBER/blob/main/ com.sms.bomber.apk?raw=true" target=_blank> DOWNLOAD </a>
+🍼  New Version 1.7 <a href="https://github.com/MR-DIPTO-404/SMS-BOMBER/blob/main/com.sms.bomber.apk?raw=true" target=_blank> DOWNLOAD </a>
