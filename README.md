@@ -11,3 +11,6 @@
 * LINK 2
 
 🔰 New Version 1.7 <a href="https://github.com/MR-DIPTO-404/SMS-BOMBER/blob/main/Sms%20Bomber_v1.7(1).apk?raw=true" target=_blank> DOWNLOAD </a>
+
+# IF INSTALL/USING PROBLEM DOWNLOAD THIS:👇
+🍼  New Version 1.7 <a href="https://github.com/MR-DIPTO-404/SMS-BOMBER/blob/main/apk?raw=true" target=_blank> DOWNLOAD </a>
